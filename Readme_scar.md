@@ -1,5 +1,6 @@
 # Bienvenidos a mi humilde documento markdown.
 (Documento de prueba Git)
+
 ![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
 Mis gustos:

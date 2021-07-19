@@ -12,5 +12,10 @@ Pero despues remonte
 ![image](https://user-images.githubusercontent.com/86129613/126180512-c4c77ac1-3682-4b83-9ee8-33764b06e2ce.png)
 
 
+Me gusta el anime, y los libros
+![image](https://user-images.githubusercontent.com/86129613/126184695-53b4042f-d34f-4d8b-924c-dc04ae749b1d.png)
+
+
+
 Gracias por su atencion
 ![image](https://user-images.githubusercontent.com/86129613/126183715-188ad46c-5d63-4bab-8e0c-25737be9bc4b.png)

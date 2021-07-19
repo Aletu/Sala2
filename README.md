@@ -10,3 +10,7 @@ Aunque casi me quedo en el quiz de python.
 
 Pero despues remonte
 ![image](https://user-images.githubusercontent.com/86129613/126180512-c4c77ac1-3682-4b83-9ee8-33764b06e2ce.png)
+
+
+Gracias por su atencion
+![image](https://user-images.githubusercontent.com/86129613/126183715-188ad46c-5d63-4bab-8e0c-25737be9bc4b.png)
